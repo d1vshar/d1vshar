@@ -22,7 +22,7 @@ I firmly believe Projects are the best way to learn and am open to collaborate w
 You can reach me at:
 - Email: anshu.bishops.2001@gmail.com
 - Twitter: https://twitter.com/l0lly_gag
-- Discord: l0llygag#0302
+- Discord: d1vshar#0302
 
 
 <!--
